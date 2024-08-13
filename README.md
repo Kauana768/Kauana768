@@ -1,4 +1,1 @@
-[! [gif] (https://github.com/user-attachments/assets/0958faac-4c6e-4dbf-87e0-145466428435)
-]
-
-
+[!https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.elektronikus.lt%2F%3Fc%3Dtanjiro-mitsuri-gif-tanjiro-mitsuri-demon-slayer-discover-share-jj-44pjBVsr&psig=AOvVaw1pYAGBSRqFf8WjuAG-8hHG&ust=1723645097147000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCOjRlcCU8ocDFQAAAAAdAAAAABAT ]
