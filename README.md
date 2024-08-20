@@ -1,1 +1,1 @@
-[! https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpf4-ploF2kWWAaMlVUTA1mg0jlG7OFzShlDKJXZGe-yGFWCTvxelRnLEdwPVzAMIHu5a-FU1HsqqByqimZxEVDsjwEhOnCJpwPNgNk5lAlplgY4QcuaO3C0LAaOimxd_kqnGRIH6N4gnijhd5a6lEsD8uKvcltaAap5NMbB6PS-U7Rc3_ww/s1600/Kimetsu%20no%20Yaiba%20-%20Katanakaji%20no%20Sato-hen%20-%20Episode%201%20-%20Mitsuri%20Spins%20Tanjirou%20Around.gif ]
+[https://images.app.goo.gl/oHGrWKiR9waNxuzUA]
